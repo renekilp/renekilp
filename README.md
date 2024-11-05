@@ -8,5 +8,5 @@ I'm a first-year student @ Metropolia University of Applied Sciences, pursuing a
 
 I create silly things sometimes
 
-
- ![faxmybro](https://github.com/user-attachments/assets/2ed81b77-3ccb-4941-ae0b-bcf0d7bbf46f)
+![30c210344bbbcde4d5542c02a0cb908b](https://github.com/user-attachments/assets/1105ef68-4576-49b2-9f0c-60c7906b0436)
+![faxmybro](https://github.com/user-attachments/assets/2ed81b77-3ccb-4941-ae0b-bcf0d7bbf46f)
